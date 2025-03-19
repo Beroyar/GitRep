@@ -1,8 +1,5 @@
 Hello, World!
 
-fdna;nnnnnnnqa'ban
-PJIBNP
-rijjriHbv;iwygIGhewu
 
 ## Список клиентов
 Мы на столько крутые, что уже успели поработать со следующими компаниями:
